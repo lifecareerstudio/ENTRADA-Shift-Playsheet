@@ -5,7 +5,7 @@
 ## Step 1: Notice This
 
 **What are you noticing right now?**  
-Write down what’s present for you in this moment.  
+Write down what’s present for you in this moment tiday.
 - Thoughts  
 - Feelings  
 - Body sensations  
